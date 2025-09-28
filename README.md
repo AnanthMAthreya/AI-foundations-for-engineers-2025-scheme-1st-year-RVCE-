@@ -1,0 +1,1 @@
+# AI-foundations-for-engineers-2025-scheme-1st-year-RVCE-
